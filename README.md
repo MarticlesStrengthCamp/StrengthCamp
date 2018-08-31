@@ -4,36 +4,36 @@
 
 ### Youtube上最好的相扑硬拉教程(Ft. Calgary BarBell)
 
-![Watch the video](covers/The BEST How To Deadlift Guide On YouTube.jpg)
+![Watch the video](covers/The%20BEST%20How%20To%20Deadlift%20Guide%20On%20YouTube.jpg)
 
-<p align="center">[**【视频地址】**](https://www.bilibili.com/video/av30723474/)</p>
+[**【视频地址】**](https://www.bilibili.com/video/av30723474/)
 
 ### 奥运举重冠军的推荐：5个动作改善肩关节灵活度丨Oleksiy Torokhtiy
 
-![Watch the video](covers/5 Best Mobility  Flexibility Drills for Clean, Front Squat, Jerk.jpg)
+![Watch the video](covers/5%20Best%20Mobility%20%20Flexibility%20Drills%20for%20Clean%2C%20Front%20Squat%2C%20Jerk.jpg)
 
-<p align="center">[**【视频地址】**](https://www.bilibili.com/video/av30406404/)</p>
+[**【视频地址】**](https://www.bilibili.com/video/av30406404/)
 
 ### 胡子哥硬拉小诀窍：膝关节外展丨Alan Thrall
-![Watch the video](covers/Knees Out Deadlift Cue.jpg)
+![Watch the video](covers/Knees%20Out%20Deadlift%20Cue.jpg)
 
-<p align="center">[**【视频地址】**](https://www.bilibili.com/video/av29282107/)</p>
+[**【视频地址】**](https://www.bilibili.com/video/av29282107/)
 
 ### 假扮肥宅挑战街健大咖丨美国肌肉沙滩恶作剧
-![Watch the video](covers/Fat Man VS Bodybuilders.jpg)
+![Watch the video](covers/Fat%20Man%20VS%20Bodybuilders.jpg)
 
-<p align="center">[**【视频地址】**](https://www.bilibili.com/video/av29579573/)</p>
+[**【视频地址】**](https://www.bilibili.com/video/av29579573/)
 
 ### 69岁的力量举冠军人生：Rudy Kadlub
-![Watch the video](covers/69 years powerlifter.jpg)
+![Watch the video](covers/69%20years%20powerlifter.jpg)
 
-<p align="center">[**【视频地址】**](https://www.bilibili.com/video/av28690935/)</p>
+[**【视频地址】**](https://www.bilibili.com/video/av28690935/)
 
 
 
 ## 二、计划部分
 
-###1. KIZEN - Infinite Off Season
+### 1. KIZEN - Infinite Off Season
 #### 前言
 计划翻译自:**https://kizentraining.com/p/infinite-off-season**
 这个计划的诞生离不开**Omar Isuf, Silent Mike, Bart Kwan, Nigel Morton**的努力，向他们的无私奉献表示感谢。

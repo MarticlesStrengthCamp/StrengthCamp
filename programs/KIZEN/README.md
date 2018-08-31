@@ -1,4 +1,4 @@
-#KIZEN Infinite Off-Season 力量举计划食用说明书
+# KIZEN Infinite Off-Season 力量举计划食用说明书
 
 ## 前言
 计划翻译自:**https://kizentraining.com/p/infinite-off-season**
