@@ -4,20 +4,31 @@
 
 ### Youtube上最好的相扑硬拉教程(Ft. Calgary BarBell)
 
-[![Watch the video](covers/The BEST How To Deadlift Guide On YouTube.jpg)](https://www.bilibili.com/video/av30723474/)
+![Watch the video](covers/The BEST How To Deadlift Guide On YouTube.jpg)
+
+<p align="center">[**【视频地址】**](https://www.bilibili.com/video/av30723474/)</p>
 
 ### 奥运举重冠军的推荐：5个动作改善肩关节灵活度丨Oleksiy Torokhtiy
 
-[![Watch the video](covers/5 Best Mobility  Flexibility Drills for Clean, Front Squat, Jerk.jpg)](https://www.bilibili.com/video/av30406404/)
+![Watch the video](covers/5 Best Mobility  Flexibility Drills for Clean, Front Squat, Jerk.jpg)
+
+<p align="center">[**【视频地址】**](https://www.bilibili.com/video/av30406404/)</p>
 
 ### 胡子哥硬拉小诀窍：膝关节外展丨Alan Thrall
-[![Watch the video](covers/Knees Out Deadlift Cue.jpg)](https://www.bilibili.com/video/av29282107/)
+![Watch the video](covers/Knees Out Deadlift Cue.jpg)
+
+<p align="center">[**【视频地址】**](https://www.bilibili.com/video/av29282107/)</p>
 
 ### 假扮肥宅挑战街健大咖丨美国肌肉沙滩恶作剧
-[![Watch the video](covers/Fat Man VS Bodybuilders.jpg)](https://www.bilibili.com/video/av29579573/)
+![Watch the video](covers/Fat Man VS Bodybuilders.jpg)
+
+<p align="center">[**【视频地址】**](https://www.bilibili.com/video/av29579573/)</p>
 
 ### 69岁的力量举冠军人生：Rudy Kadlub
-[![Watch the video](covers/69 years powerlifter.jpg)](https://www.bilibili.com/video/av28690935/)
+![Watch the video](covers/69 years powerlifter.jpg)
+
+<p align="center">[**【视频地址】**](https://www.bilibili.com/video/av28690935/)</p>
+
 
 
 ## 二、计划部分
