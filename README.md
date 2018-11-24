@@ -4,46 +4,46 @@
 
 ### Youtube上最好的相扑硬拉教程(Ft. Calgary BarBell)
 
-![Watch the video](covers/The%20BEST%20How%20To%20Deadlift%20Guide%20On%20YouTube.jpg)
+![](covers/The%20BEST%20How%20To%20Deadlift%20Guide%20On%20YouTube.jpg)
 
 [**【视频地址】**](https://www.bilibili.com/video/av30723474/)
 
 ### 奥运举重冠军的推荐：5个动作改善肩关节灵活度丨Oleksiy Torokhtiy
 
-![Watch the video](covers/5%20Best%20Mobility%20%20Flexibility%20Drills%20for%20Clean%2C%20Front%20Squat%2C%20Jerk.jpg)
+![](covers/5%20Best%20Mobility%20%20Flexibility%20Drills%20for%20Clean%2C%20Front%20Squat%2C%20Jerk.jpg)
 
 [**【视频地址】**](https://www.bilibili.com/video/av30406404/)
 
 ### 胡子哥硬拉小诀窍：膝关节外展丨Alan Thrall
-![Watch the video](covers/Knees%20Out%20Deadlift%20Cue.jpg)
+![](covers/Knees%20Out%20Deadlift%20Cue.jpg)
 
 [**【视频地址】**](https://www.bilibili.com/video/av29282107/)
 
 ### 假扮肥宅挑战街健大咖丨美国肌肉沙滩恶作剧
-![Watch the video](covers/Fat%20Man%20VS%20Bodybuilders.jpg)
+![](covers/Fat%20Man%20VS%20Bodybuilders.jpg)
 
 [**【视频地址】**](https://www.bilibili.com/video/av29579573/)
 
 ### 69岁的力量举冠军人生：Rudy Kadlub
-![Watch the video](covers/69%20years%20powerlifter.jpg)
+![](covers/69%20years%20powerlifter.jpg)
 
 [**【视频地址】**](https://www.bilibili.com/video/av28690935/)
 
 ### 训练该如何做热身组?丨 Calgary Barbell
 
-![Watch the video](covers/HOW MANY WARM-UP SETS SHOULD YOU DO.jpg)
+![](covers/HOWMANYWARM-UPSETSSHOULDYOUDO.jpg)
 [**【视频地址】**](https://www.bilibili.com/video/av27288775/)
 
 ### 胡子哥干货：卧推为何/如何起桥？丨Alan Thrall
-![Watch the video](covers/Why We Arch  How To Arch  Bench Press.jpg)
+![](covers/WhyWeArchHowToArchBenchPress.jpg)
 [**【视频地址】**](https://www.bilibili.com/video/av25715807/)
 
 ### 励志：变强之路，没有捷径!丨 Calgary Barbell
-![Watch the video](covers/There Are NO Sexy Answers to Getting STRONGER.jpg)
+![](covers/ThereAreNOSexyAnswerstoGettingSTRONGER.jpg)
 [**【视频地址】**](https://www.bilibili.com/video/av25474675/)
 
 ### 奥运选手间的项目互换：BMX小轮车VS马术丨Sports Swap
-![Watch the video](covers/Sports Swap.jpg)
+![](covers/SportsSwap.jpg)
 [**【视频地址】**](https://www.bilibili.com/video/av24134947/)
 
 
