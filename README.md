@@ -1,6 +1,6 @@
 # 个人译制:原创中文翻译健身视频与计划
 
-## 一、视频部分 ( 点击图片即可跳转播放视频 )
+## 一、视频部分
 
 ### Youtube上最好的相扑硬拉教程(Ft. Calgary BarBell)
 
@@ -29,6 +29,22 @@
 
 [**【视频地址】**](https://www.bilibili.com/video/av28690935/)
 
+### 训练该如何做热身组?丨 Calgary Barbell
+
+![Watch the video](covers/HOW MANY WARM-UP SETS SHOULD YOU DO.jpg)
+[**【视频地址】**](https://www.bilibili.com/video/av27288775/)
+
+### 胡子哥干货：卧推为何/如何起桥？丨Alan Thrall
+![Watch the video](covers/Why We Arch  How To Arch  Bench Press.jpg)
+[**【视频地址】**](https://www.bilibili.com/video/av25715807/)
+
+### 励志：变强之路，没有捷径!丨 Calgary Barbell
+![Watch the video](covers/There Are NO Sexy Answers to Getting STRONGER.jpg)
+[**【视频地址】**](https://www.bilibili.com/video/av25474675/)
+
+### 奥运选手间的项目互换：BMX小轮车VS马术丨Sports Swap
+![Watch the video](covers/Sports Swap.jpg)
+[**【视频地址】**](https://www.bilibili.com/video/av24134947/)
 
 
 ## 二、计划部分
